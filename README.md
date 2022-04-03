@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @doejanno
+- 👀 I’m interested in Coding and Climate change
+- 🌱 I’m currently studying "Climate protection and climate adaptation"
