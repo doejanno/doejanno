@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Janno
-- 👀 I’m interested in Coding and Climate change
+- 👀 I’m interested in Coding and Climate change mitegation and adaptation
 - 🌱 I’m currently studying "Climate protection and climate adaptation"
